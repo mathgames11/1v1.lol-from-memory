@@ -1,1 +1,1 @@
-fack you betch nigeria shart ahh
+FACK YOU NIGGER
